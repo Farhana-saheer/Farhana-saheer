@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Farhana-saheer
+- 🌱 I’m currently learning in barton hill engineering college, trivandrum
